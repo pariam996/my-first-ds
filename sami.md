@@ -1,1 +1,1 @@
-![InShot_20250313_164358421](https://cdn.imgurl.ir/uploads/l199_InShot_20250525_205655488.jpg)
+![InShot_20250313_164358421](https://cdn.imgurl.ir/uploads/l199_InShot_20250525_205655488.jpg)![inshot.gif](https://github.com/pariam996/my-first-ds/blob/main/InShot_%DB%B2%DB%B0%DB%B2%DB%B5%DB%B0%DB%B5%DB%B2%DB%B9_%DB%B2%DB%B1%DB%B4%DB%B7%DB%B4%DB%B3%DB%B3%DB%B2%DB%B8.gif)
